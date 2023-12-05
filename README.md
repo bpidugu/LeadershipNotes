@@ -1,0 +1,2 @@
+# LeadershipNotes
+Leadership traits
